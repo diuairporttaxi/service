@@ -1,37 +1,39 @@
-## Welcome to GitHub Pages
+## Welcome to Diu Airport Taxi Service Call : 9574990800, 9228820300  
 
-You can use the [editor on GitHub](https://github.com/diuairporttaxi/service/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+### Book Youor Taxi From Diu Airport Online From Below Links
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+[Book Taxi Service From Diu Airport](https://www.somnathtravels.in/book-taxi/diu-airport-taxi-service)
 
-### Markdown
+[Diu Airport To Somnath Temple Taxi Service](https://www.somnathtravels.in/diu-to-somnath-car-booking) 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+[Diu Airport To Sasan Gir Taxi Service](https://www.somnathtravels.in/diu-to-sasangir-car-booking)
 
-```markdown
-Syntax highlighted code block
+[Diu Airport to Rajula Taxi Service](https://www.somnathtravels.in/diu-to-somnath-car-booking)
 
-# Header 1
-## Header 2
-### Header 3
+[Diu Airport To Junagadh Taxi Service](https://www.somnathtravels.in/diu-to-junagadh-car-booking) 
 
-- Bulleted
-- List
+[Diu Airport To Rajkot Taxi Service](https://www.somnathtravels.in/diu-to-rajkot-car-booking)
 
-1. Numbered
-2. List
+[Diu Airport To Dwarka Taxi Service](https://www.somnathtravels.in/diu-to-dwarka-car-booking)
 
-**Bold** and _Italic_ and `Code` text
+[Diu Airport To Porbandar Taxi Service](https://www.somnathtravels.in/diu-to-porbandar-car-booking)
 
-[Link](url) and ![Image](src)
-```
+[Diu Airport To Jamnagar Taxi Service](https://www.somnathtravels.in/diu-to-jamnagar-car-booking)
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+[Diu Airport To Ahmedabad Taxi Service](https://www.somnathtravels.in/diu-to-ahmedabad-car-booking)
 
-### Jekyll Themes
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/diuairporttaxi/service/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
-### Support or Contact
+## Cars Available : Minimum 300 KM Per Day 
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+1. Swift Dezire : 10 Rs Per KM (4 Persons + 3 Luggages)
+2. Ertiga : 10 Rs P]er KM (5 Persons + 4 Luggages)
+3. Innova : 14 Rs Per KM (6 Persons + 5 Luggages )
+
+[Taxi Service in Somnath](https://www.somnathtravels.in)
+ | [Taxi Service in Dwarka](https://www.dwarikatravels.in)
+ | [Taxi Service in Rajkot](https://www.rajkotcabs.in)
+ | [IFSC CODES](https://voobus.in)
+
+
+
